@@ -1,0 +1,3 @@
+- 👋 Hi, I’m OshinOlakunbi
+- 👀 I’m interested in ...Hiring Tech Talents
+- 📫 How to reach me ...oshin@nexaya.com
